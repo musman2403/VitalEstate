@@ -62,4 +62,4 @@ Vital Estate/
 "Documentation-First Real Estate" — The design reflects trust, premium quality, and verification.
 
 ---
-© 2024 Vital Estates & Builders.
+© 2025 Vital Estates & Builders.
